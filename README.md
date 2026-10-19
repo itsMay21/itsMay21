@@ -22,4 +22,4 @@ Agentic systems · enterprise tools · MCPs · model routing · operational data
 
 ## Connect
 
-[LinkedIn](https://www.linkedin.com/in/mayanksaini-ai/)
+[Portfolio](https://mayanksaini.dev) · [LinkedIn](https://www.linkedin.com/in/mayanksaini-ai/)
